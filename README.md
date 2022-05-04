@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @abaiXwolf 
-- 👀 I’m interested in ...tech
-- 🌱 I’m currently learning ... tech
+- 👀 I’m interested in ...all things tech
+- 🌱 I’m currently hiring for many different roles
 - 💞️ I’m looking to collaborate on ...many things
 - 📫 How to reach me ...https://www.linkedin.com/in/alexbailey1500/ 
 
